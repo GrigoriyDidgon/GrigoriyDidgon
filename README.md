@@ -1,8 +1,8 @@
 - 👋 Hi, Im GrigoriyDidgon
-- 👀 I’m interested in game and language
+- 👀 I’m interested in game and languag3
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me
 - 😄 Pronouns: ..
 - ⚡ Fun fact: .
 
