@@ -1,6 +1,6 @@
 - 👋 Hi, Im GrigoriyDidgon
 - 👀 I’m interested in game and languag3
-- 🌱 I’m currently learning ...hdsrdfvggftyugbhn
+- 🌱 I’m currently learning ...vfdsw3ezsrxcfkugilo;hgbuhjik
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach dhndrdsbgt
 - 😄 Pronouns: ..desryfvyuftdfor6toifgyuh
