@@ -2,7 +2,7 @@
 - 👀 I’m interested in game and languag3
 - 🌱 I’m currently learning ...gfresdfghjk
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach hgfdyrtygujk
+- 📫 How to reach nhvboiugbuoij
 - 😄 Pronouns: ..fdsgkudoftgi
 - ⚡ Fun fact:
 GrigoriyDidgon/GrigoriyDidgon is a special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
